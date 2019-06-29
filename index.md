@@ -3,5 +3,13 @@
 ONLY YOU CAN SAVE THR WORLD FROM THEM!
 
 
+- #Compete with the best players and get to the top!
+- #TONS of fruit asteroids!
+- #EXPLOSE asteroids! They do not have to touch your planet!
+- #THE FATE OF ALL WORLD DEPENDS ON YOU!
 
-![Alt text](6-29-2019_7-14-48_AM.png?raw=true "Title")
+
+
+##All questions and suggestions are accepted here: lotibalgei@gmail.com
+
+![Alt text](6-29-2019_7-14-48_AM.png?raw=false "Screenshot")
