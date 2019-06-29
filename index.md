@@ -1,5 +1,5 @@
 ## FRUIT ASTEROIDS ARRIVED!
-
+![Alt text](icon 2.png?raw=false "Screenshot")
 ONLY YOU CAN SAVE THE WORLD FROM THEM!
 
 
