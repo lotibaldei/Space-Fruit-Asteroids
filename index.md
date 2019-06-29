@@ -4,7 +4,7 @@ ONLY YOU CAN SAVE THR WORLD FROM THEM!
 
 
 - Compete with the best players and get to the top!
-- TONS of fruit asteroids!
+## - TONS of fruit asteroids!
 - EXPLOSE asteroids! They don't have to touch your planet!
 - THE FATE OF WHOLE WORLD DEPENDS ON YOU!
 
