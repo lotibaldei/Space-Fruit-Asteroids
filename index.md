@@ -1,6 +1,6 @@
 ## FRUIT ASTEROIDS ARRIVED!
 
-ONLY YOU CAN SAVE THR WORLD FROM THEM!
+ONLY YOU CAN SAVE THE WORLD FROM THEM!
 
 
 - Compete with the best players and get to the top!
